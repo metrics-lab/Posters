@@ -1,1 +1,1 @@
-Posters & abstracts for OHBM2026 conference.
+Posters & abstracts for 2026 conferences.
